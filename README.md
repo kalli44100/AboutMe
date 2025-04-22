@@ -12,3 +12,6 @@
 ### Audio and Video
 -> add links to youtube video production music videos
 -> soundcloud?
+
+### Sound and Audio Experience
+Mosaic of audio job pictures - Ollie celebrity guy, etc
