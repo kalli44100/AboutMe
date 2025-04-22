@@ -15,3 +15,7 @@
 
 ### Sound and Audio Experience
 Mosaic of audio job pictures - Ollie celebrity guy, etc
+
+### card game?
+
+### family life?
