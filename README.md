@@ -32,7 +32,9 @@ After that I upped my game and did quite a few shoots for Kelvo:
 
 Producing, shooting and editing is incredibly time and energy consuming and doesn't pay a whole lot. I also became a full-time dad around that time so I knew I couldn't continue what was essentially a hobby at the time. It was a lot of fun though and watching my content today fills me with a sense of creative achievement as well as nostalgia.
 
-I also still have my [Soundcloud](https://soundcloud.com/holgerhimmelblau) with songs ranging through my years of active composing. You will find an eclectic mix of music including remixes of Janos, the artist in my first video, as well as SoundDesign and Composition for Films and even some weird experimental stuff.
+I also still have my [Soundcloud](https://soundcloud.com/holgerhimmelblau) with songs ranging through my years of active composing. You will find an eclectic mix of music including remixes of Janos, the artist in my first video, as well as SoundDesign and Composition for Films and even some weird experimental stuff (such as me singing:).
+I used to also enjoy participating in Remix contests and even won this one [Rico Püstel - Meta-Emotion (Karl Laeufers "The Illimitable Interlude" Remix)](https://www.amazon.com/Nauic-Rose-Rico-P%C3%BCstel/dp/B00FH6RQDQ)
+
 
 ### Sound and Audio Experience
 Mosaic of audio job pictures - Ollie Murs, etc
