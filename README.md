@@ -13,7 +13,8 @@ I created a track called "Y Poco A Poco" ("And Little By Little") with this Inst
 
 [Y Poco A Poco - Improved Version](https://www.youtube.com/watch?v=MXAMKW2mtDw&ab_channel=Elfyn-Topic)
 
- gif of USH Thesis videos?
+![USH_Performance](https://github.com/user-attachments/assets/87086a41-9a6d-4594-a041-730b475031aa)
+
 
 ### Audio and Video
 Like most people in the film industry, I eventually felt the need to get creative and produce my own content so I got myself some camera and lighting gear and set up to produce music videos. Here is my first ever attempt [Janos - You](https://www.youtube.com/watch?v=A9sHOheY6GU&ab_channel=Janos)
