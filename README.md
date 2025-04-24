@@ -1,7 +1,7 @@
 # AboutMe - Work in Progress
 
  ### Hobbies
- I like to keep active with Muay Thai, Hot Yoga or Skateboarding. I'm also a certified Windsurf Instructor and when I'm not exercising, I try to keep healthy (I even grew my own Wheat- and Barleygrass back then for juicing, nowadays I juice the grass from the backyard or resort to powders). To balance out the healthy side, I'm an avid baker who likes to create his own variations. And yes, someone just reminded me that I used to be a Dj, I had almost forgotten about it, but I still have my Faderfox Dj Midi Controller (at the bottom of the picture).
+ I like to keep active with Muay Thai, Hot Yoga, Basketball or Skateboarding. I'm also a certified Windsurf Instructor and when I'm not exercising, I try to keep healthy (I even grew my own Wheat- and Barleygrass back then for juicing, nowadays I juice the grass from the backyard or resort to powders). To balance out the healthy side, I'm an avid baker who likes to create his own variations. And yes, someone just reminded me that I used to be a Dj, I had almost forgotten about it, but I still have my Faderfox Dj Midi Controller (at the bottom of the picture).
  ![hobbies](https://github.com/user-attachments/assets/eeb33ab8-ae69-4296-958a-79eb5cf8ad75)
 
 
